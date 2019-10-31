@@ -1,2 +1,2 @@
 # Jungle
-our of my jungle
+out of my jungle
